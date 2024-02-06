@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+-👋Hi, I am Mario from SAYNA.It's digital school to learn all digital jobs.<br>
+-🌱I'm currently learning how to code at SAYNA.<br> 
+-☘️How to reach me : mariodevpro75@gmail.com <br><br>
